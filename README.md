@@ -1,2 +1,0 @@
-# twentyfourseven-kitch
-kook kunst
